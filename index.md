@@ -7,3 +7,5 @@
 [Snap Tutorial: Dance!](https://youtu.be/EQ24s_IFg1k)
 
 [Scratch Quest!](https://youtu.be/0gM3seEpON8)
+
+[Snap Mouse makes cheese!](https://youtu.be/fhtDw89Qaak)
