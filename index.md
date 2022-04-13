@@ -9,3 +9,5 @@
 [Scratch Quest!](https://youtu.be/0gM3seEpON8)
 
 [Snap Mouse makes cheese!](https://youtu.be/fhtDw89Qaak)
+
+[Snap Monkey eats bananas!](https://youtu.be/bGPzq_Y2MU4)
