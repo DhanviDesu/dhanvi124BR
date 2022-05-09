@@ -15,3 +15,5 @@
 [Drawing a triangle, square, and pentagon in Snap!](https://youtu.be/2deJkSsZLUc)
 
 [Catching the soccer ball!](https://youtu.be/wGLdPhdM8s8)
+
+[Ball touching target game!](https://youtu.be/qhtU10hyyuY)
