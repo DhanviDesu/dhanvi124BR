@@ -17,3 +17,5 @@
 [Catching the soccer ball!](https://youtu.be/wGLdPhdM8s8)
 
 [Ball touching target game!](https://youtu.be/qhtU10hyyuY)
+
+[Norman wants to swim!](https://youtu.be/MmK4Mu_yDQw)
