@@ -19,3 +19,5 @@
 [Ball touching target game!](https://youtu.be/qhtU10hyyuY)
 
 [Norman wants to swim!](https://youtu.be/MmK4Mu_yDQw)
+
+[Norman finds treasure!](https://youtu.be/AG5VNRIr23Q)
