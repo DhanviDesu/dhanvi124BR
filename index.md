@@ -21,3 +21,5 @@
 [Norman wants to swim!](https://youtu.be/MmK4Mu_yDQw)
 
 [Norman finds treasure!](https://youtu.be/AG5VNRIr23Q)
+
+[Draw sun and picture!](https://youtu.be/ziLHDniEZwM)
