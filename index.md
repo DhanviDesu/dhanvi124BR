@@ -23,3 +23,5 @@
 [Norman finds treasure!](https://youtu.be/AG5VNRIr23Q)
 
 [Draw sun and picture!](https://youtu.be/ziLHDniEZwM)
+
+[Countries with your letter!](https://youtu.be/cIKi4SNqS5Y)
